@@ -2,7 +2,7 @@
 - 👀 I’m interested in Trabalhar como desenvolvedor
 - 🌱 I’m currently learning ...python
 - 💞️ I’m looking to collaborate EM empresas
-- 📫 How to reach me whatssap(6199997-3187 email-marcoantoniogabrie17@gmail.com
+- 📫 How to reach me whatssap(61099997-3187 email-marcoantoniogabrie17@gmail.com
 - 😄 Pronouns:Gabriel
 - ⚡ Fun fact:Facilidade em trabalho em Equipe
 
