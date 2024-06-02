@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Marcogabriel
 - 👀 I’m interested in Trabalhar como desenvolvedor
-- 🌱 I’m currently learning ...python
+- 🌱 I’m currently learning:python
 - 💞️ I’m looking to collaborate EM empresas
 - 📫 How to reach me whatssap(61099997-3187 email-marcoantoniogabrie17@gmail.com
 - 😄 Pronouns:Gabriel
